@@ -18,3 +18,8 @@ Equipamentos:
 * Acelerometro triaxial analógico
 * Mini Bola Brazuca
 * Globo Terrestre Escola de celulose e resina – 14cm de diâmetro
+
+https://www.youtube.com/watch?v=VxV0Dnmkg8M
+
+https://www.youtube.com/watch?v=JUutNBpg5Jc
+
